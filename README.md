@@ -2,7 +2,6 @@
 - 👀 I'm interested in people looking for a job.
 - 📫 Connact with me.
 - Email: huynhthutrinh@gmail.com
-- Skype: live:.cid.318329c4f425dd02
 - LinkedIn: https://www.linkedin.com/in/t-trinh-huynh-87430b285/
 - Job Referral Support Registration: https://forms.gle/QPs2zLTu1p4okunR9
 - For interested candidates: Please refer to the detailed information about available positions organized by region for each project. If you need further assistance, feel free to contact us directly.
